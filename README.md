@@ -3,7 +3,7 @@
 ## I'm a Student Developer!!
 
 - 🌱 I’m currently learning everything 🤣
-- 🥅 2021 Goals: Follow more courses
+- 🥅 2022 Goals: Follow more courses
 - ⚡ Fun fact: I love to take photo's and play video games
 
 ### Connect with me:
